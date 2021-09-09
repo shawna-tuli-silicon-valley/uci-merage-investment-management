@@ -1,4 +1,4 @@
-# Investment Management
+# Investment Management 📈💎
 
 I was UCI's investment fund's Executive Vice President and was affiliated with the Chartered Financial Analyst Society of Orange County. 
 
