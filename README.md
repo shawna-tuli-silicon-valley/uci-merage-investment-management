@@ -1,6 +1,6 @@
 # Investment Management 📈💎
 
-I was UCI's investment fund's Executive Vice President and was affiliated with the Chartered Financial Analyst Society of Orange County. 
+I was the Executive Vice President of SMIF at UCI and was affiliated with the Chartered Financial Analyst Society of Orange County. 
 
 ![IMG_9993](https://user-images.githubusercontent.com/19508013/132602352-00183bcc-1dd3-4f17-8f94-b514de6d1681.jpeg)
 
