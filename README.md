@@ -1,5 +1,7 @@
 ![1554098320392](https://user-images.githubusercontent.com/19508013/165677742-ddd99f35-a532-447e-ad61-a8202b346c9b.jpeg)
 
+![CFA_Logo](https://user-images.githubusercontent.com/19508013/165827375-8057aea2-4e81-44bf-be06-1e91b321dd2a.jpg)
+
 I was the Executive Vice President of SMIF at UCI and was affiliated with the Chartered Financial Analyst Society of Orange County. I led 35+ analysts in economic research, equity, fixed income, fund analysis, and asset allocation. 
 
 ![IMG_9993](https://user-images.githubusercontent.com/19508013/132602352-00183bcc-1dd3-4f17-8f94-b514de6d1681.jpeg)
