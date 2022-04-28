@@ -1,4 +1,4 @@
-# Investment Management Leadership 📈💎
+![1554098320392](https://user-images.githubusercontent.com/19508013/165677742-ddd99f35-a532-447e-ad61-a8202b346c9b.jpeg)
 
 I was the Executive Vice President of SMIF at UCI and was affiliated with the Chartered Financial Analyst Society of Orange County. 
 
